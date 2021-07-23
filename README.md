@@ -27,7 +27,7 @@ I'm a Product Manager passionate about creating products that users love. I brin
 * I currently live in Bangalore, India 🇮🇳
 * I've built [Hevo Data Inc](https://hevodata.com/) along with [other passionate folks](https://hevodata.com/team/). We can talk more about the journey of zero to one.
 * I try to become a better version of myself by reading non-fiction and experimenting with the learnings in my life.
-* I'm also an avid trekker and traveler. I have solo traveled to almost all parts of India. Hitchhiking and meeting people from a different culture is something that I like the most. You can follow my travels on [Instagram](https://bit.ly/instagram-vivek). The above view from 12500ft is the best view I've ever seen. 
+* I'm also an avid trekker and traveler. I have solo traveled to almost all parts of India. Hitchhiking and meeting people from a different culture are something that I like the most. You can follow my travels on [Instagram](https://bit.ly/instagram-vivek). The above view from 12500ft is the best view I've ever seen. 
 * I sometimes [tweet](https://bit.ly/Twitter-vivek) on product management and life learnings.
 
 
