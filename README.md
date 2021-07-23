@@ -87,4 +87,7 @@ I’m a huge believer in [deep work](https://blog.doist.com/deep-work/). Nothing
 #### Trivia ⏳
 * I love to watch political thriller dramas on Netflix. I can binge straight for 10-12 hours. 📺
 * I love hitchhiking and escaped a near-death accident while traveling solo in the Himalayas. 🏔
-* I forget a lot of things 🤯 just kidding, I forgot an important day once. 
+* I forget a lot of things 🤯 just kidding, I forgot an important day once.
+
+
+###### Thank you for spending time here. May the Source be with you :)
