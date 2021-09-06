@@ -88,6 +88,7 @@ I’m a huge believer in [deep work](https://blog.doist.com/deep-work/). Nothing
 * I love to watch political thriller dramas on Netflix. I can binge straight for 10-12 hours. 📺
 * I love hitchhiking and escaped a near-death accident while traveling solo in the Himalayas. 🏔
 * I forget a lot of things 🤯 just kidding, I forgot an important day once.
+* In an interview, I answered the name of my book would be "Zero to One in Life." I think it was either quite geeky or cheesy. :P 
 
 
 ###### Thank you for spending time here. May the Source be with you :)
