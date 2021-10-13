@@ -27,7 +27,7 @@ I'm a Product Manager passionate about creating products that users love. I brin
 * I currently live in Bangalore, India 🇮🇳
 * I've built [Hevo Data Inc](https://hevodata.com/) along with [other passionate folks](https://hevodata.com/team/). We can talk more about the journey of zero to one.
 * I try to become a better version of myself by reading non-fiction and experimenting with the learnings in my life.
-* I'm also an avid trekker and traveler. I have solo traveled to almost all parts of India. Hitchhiking and meeting people from a different culture are something that I like the most. You can follow my travels on [Instagram](https://bit.ly/instagram-vivek). The above view from 12500ft is the best view I've ever seen. 
+* I'm also an avid trekker and traveler. I have solo traveled to almost all parts of India. Hitchhiking and meeting people from a different culture is something that I like the most. You can follow my travels on [Instagram](https://bit.ly/instagram-vivek). The above view from 12500ft is the best view I've ever seen. 
 * I sometimes [tweet](https://bit.ly/Twitter-vivek) on product management and life learnings.
 
 
@@ -78,6 +78,7 @@ I’m a huge believer in [deep work](https://blog.doist.com/deep-work/). Nothing
 * Life, mountains, and philosophy ⽣
 * Building a SaaS product from the ground up ⨳
 
+
 #### My learnings 📕
 * You can follow my bookshelves on [goodreads](https://bit.ly/goodreads-vivek).
 * I follow a few blogs and newsletters, one of the bests is [Timeless insights for life and business](https://fs.blog/).
@@ -85,10 +86,14 @@ I’m a huge believer in [deep work](https://blog.doist.com/deep-work/). Nothing
 
 
 #### Trivia ⏳
-* I love to watch political thriller dramas on Netflix. I can binge straight for 10-12 hours. 📺
-* I love hitchhiking and escaped a near-death accident while traveling solo in the Himalayas. 🏔
+* Good music, a cup of coffee, and mountains make a nice combination, is what I believe in. 
+* Living in mountains for months do create stories, I have got a lot of them to tell. Some of them include my hitchhiking experience and escape from a near-death accident while traveling solo in the Himalayas. 🏔
+* My pose in the above photo is me welcoming anything that the universe has for me.
+* Music is attached to my sole. [Led Zeppelin](https://open.spotify.com/artist/36QJpDe2go2KgaRleHCDTp?si=7Ri6ip7JRcqmc_RDjT1LWg&dl_branch=1), [Parvaaz](https://open.spotify.com/artist/6vwSAnfnlO6Sy37KubGrLh?si=Pt278W9fTZm7zCLLtPINpA&dl_branch=1) or [Pink Floyd](https://open.spotify.com/artist/0k17h0D3J5VfsdmQ1iZtE9?si=MQb6WeGcRpGCNPtrK9MYRA&dl_branch=1) always tops my [Spotify](https://open.spotify.com/user/vivekwiki) year wrap.
+* Political drama or thriller on Netflix is my guilty pleasure. I can binge straight for 10-12 hours. 📺
 * I forget a lot of things 🤯 just kidding, I forgot an important day once.
 * In an interview, I answered the name of my book would be "Zero to One in Life." I think it was either quite geeky or cheesy. :P 
 
 
+###### You are the ![](https://visitor-badge.glitch.me/badge?page_id=viveksinha.viveksinha) 
 ###### Thank you for spending time here. May the Source be with you :)
