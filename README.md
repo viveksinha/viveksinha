@@ -95,5 +95,5 @@ I’m a huge believer in [deep work](https://blog.doist.com/deep-work/). Nothing
 * In an interview, I answered the name of my book would be "Zero to One in Life." I think it was either quite geeky or cheesy. :P 
 
 
-###### You are the ![](https://visitor-badge.glitch.me/badge?page_id=viveksinha.viveksinha) 
 ###### Thank you for spending time here. May the Source be with you :)
+###### ![](https://visitor-badge.glitch.me/badge?page_id=viveksinha.viveksinha) 
