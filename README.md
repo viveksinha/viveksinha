@@ -84,6 +84,8 @@ I’m a huge believer in [deep work](https://blog.doist.com/deep-work/). Nothing
 * I follow a few blogs and newsletters, one of the bests is [Timeless insights for life and business](https://fs.blog/).
 * I'm currently learning how to play guitar. 🎸
 
+#### Mentorship 
+* I love mentoring. There are a handful of people who I've mentored in the past, you can find blogs on their experience writtem by [Pavan Kalyan on his experience with Hevo](https://medium.com/hevo-data-engineering/my-experience-at-hevo-ba3e26620bdd), [Pavan again](https://pavan-kalyan.dev/posts/how-to-get-the-best-out-of-your-technical-internship) and [Shikhar Vaish on his first year as a Product Manager](https://shikharvaish28.github.io/13-lessons-first-year-product-manager)
 
 #### Trivia ⏳
 * Good music, a cup of coffee, and mountains make a nice combination, is what I believe in. 
