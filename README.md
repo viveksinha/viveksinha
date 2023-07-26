@@ -70,7 +70,7 @@ I’m a huge believer in [deep work](https://blog.doist.com/deep-work/). Nothing
 #### How to reach me 📫
 
 * **E-mail:**  I read my emails once a day. You should not feel obligated to read or respond to any of the emails you receive from me outside of your normal hours. You can reach out to me at wvsinha [at] gmail [dot] com
-* By default, you should be able to schedule a [30 minute 1:1s](https://calendly.com/sinhavivek) with me as needed. I prefer that you schedule the meeting, just don't make it too late. 
+* By default, you should be able to schedule a [30 minute 1:1s](https://calendly.com/sinhavivek/30min) with me as needed. I prefer that you schedule the meeting, just don't make it too late. 
 
 
 #### Ask me about 💬
