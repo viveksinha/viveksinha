@@ -99,4 +99,4 @@ I’m a huge believer in [deep work](https://blog.doist.com/deep-work/). Nothing
 
 ###### Thank you for spending time here. May the Source be with you :)
 
-![visitors](https://visitor-badge.glitch.me/badge?page_id=viveksinha.viveksinha&left_color=green&right_color=red) 
+![visitors# ](https://visitor-badge.glitch.me/badge?page_id=viveksinha.viveksinha&left_color=green&right_color=red) 
